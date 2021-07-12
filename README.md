@@ -1,2 +1,0 @@
-# ecovortex
-studio sang pencipta
